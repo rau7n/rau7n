@@ -1,4 +1,4 @@
 - Hi, I’m @rau7n
-- I’m interested in Computer Science Mathematics
+- I’m interested in Computer Science & Mathematics
 - 🌱 I’m currently learning Android app Development
 - 📫 How to reach me :- raushan.kumar.cr7@gmail.com
